@@ -1,2 +1,3 @@
 # Aprendiendo
-Para aprender
+
+Para aprender a aprender
