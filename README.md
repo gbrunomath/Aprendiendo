@@ -2,4 +2,4 @@
 
 Para aprender a aprender
 
-Porque aprendiendo es que se aprende
+Porque aprendiendo es que se aprende, sino, pues no
